@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Welcome to Leiden Workshops in Political Science
 
 You can use the [editor on GitHub](https://github.com/LWPolSci/LWPolSci.github.io/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
