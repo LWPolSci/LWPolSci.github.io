@@ -1,7 +1,3 @@
----
-title: Leiden Workshops in Political Science
----
-
  
 |Date                 | Time     | Speaker(s) | Title
 | ------------------ | ------------- |------------- |-------------------------- |
