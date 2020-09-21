@@ -3,11 +3,15 @@
 ## Fall 2020
 
 **30-Sep-2020 (12:00 CET):**
+
 *Tim Glawion and Anne-Clémence Le Noan*
+
 The genius inefficacy of rebel governance: a case study of Ndélé in the Central African Republic
 
-`7-Oct-2020	 (12:00 CET):**`
+**7-Oct-2020	 (12:00 CET):**
+
 *Leslie Wehner*
+
 Personality traits of populist leaders: Trump and Hugo Chavez
 
 
