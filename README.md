@@ -1,6 +1,3 @@
-title: The title
-description: Description
-
 ## Welcome to Leiden Workshops in Political Science
 
  
