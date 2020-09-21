@@ -1,4 +1,6 @@
-## Welcome to Leiden Workshops in Political Science
+---
+title: Leiden Workshops in Political Science
+---
 
  
 |Date                 | Time     | Speaker(s) | Title
