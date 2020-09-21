@@ -1,5 +1,6 @@
 ## Welcome to Leiden Workshops in Political Science
 
+<div class="foo">
 |Date                 | Time     | Speaker(s) | Title
 | ------------- | ------------- |------------- |------------- |
 |30-Sep-2020,	Wednsday|	12:00 CET|	Tim Glawion and Anne-Clémence Le Noan |	The genius inefficacy of rebel governance: a case study of Ndélé in the Central African Republic
@@ -14,3 +15,7 @@
 |2-Dec-2020	Wednesday	  | 12:00 CET	| Daniel Sobelman	| From Hezbollah to Hamas, to the Houthis: The Diffusion of the ‘Resistance’ Model
 |9-Dec-2020	Wednesday	  | 16:00 CET	| Pablo Barbera	  | Does Exposure to Online Partisan Media Affect Political Attitudes and Behavior?
 |16-Dec-2020	Wednesday	| -         |	 -| 	
+
+
+
+/div>
