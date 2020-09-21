@@ -2,6 +2,10 @@
 # Welcome to Leiden Workshops in Political Science 
 ## Fall 2020
 
+**30-Sep-2020 (12:00 CET): **
+
+Tim Glawion and Anne-Clémence Le Noan |	The genius inefficacy of rebel governance: a case study of Ndélé in the Central African Republic
+
 |                   Date               | Time     | Speaker(s) | Title
 |:-----------------------:|:-------------:|:------|:------------------------------------------------------------|
 |30-Sep-2020 |	12:00 CET|	Tim Glawion and Anne-Clémence Le Noan |	The genius inefficacy of rebel governance: a case study of Ndélé in the Central African Republic
