@@ -3,15 +3,16 @@
 ## Fall 2020
 
 `**30-Sep-2020 (12:00 CET):**`
+*Tim Glawion and Anne-Clémence Le Noan*
+The genius inefficacy of rebel governance: a case study of Ndélé in the Central African Republic
 
-Tim Glawion and Anne-Clémence Le Noan 	The genius inefficacy of rebel governance: a case study of Ndélé in the Central African Republic
+`7-Oct-2020	 (12:00 CET):**`
+*Leslie Wehner*
+Personality traits of populist leaders: Trump and Hugo Chavez
 
 
 
-|                   Date               | Time     | Speaker(s) | Title
-|:-----------------------:|:-------------:|:------|:------------------------------------------------------------|
-|30-Sep-2020 |	12:00 CET|	Tim Glawion and Anne-Clémence Le Noan |	The genius inefficacy of rebel governance: a case study of Ndélé in the Central African Republic
-|7-Oct-2020	 | 12:00 CET|	Leslie Wehner|	Personality traits of populist leaders: Trump and Hugo Chavez
+
 |14-Oct-2020	| 12:00 CET|	Asli Cansur	| Out of Sight, Out of Mind? Electoral Responses to Proximity of Healthcare
 |21-Oct-2020	| 16:00 CET|	Philip Roessler, Yannick Pengl, and Valeria Rueda |	Cash Crops, Print Technologies and the Politicization of Ethnicity in Africa
 |28-Oct-2020	|	  -      |- |-
