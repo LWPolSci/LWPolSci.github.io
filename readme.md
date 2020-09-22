@@ -29,7 +29,7 @@ Out of Sight, Out of Mind? Electoral Responses to Proximity of Healthcare
 
 ### 21-Oct-2020 (16:00 CET)
 
-*[Philip Roessler](https://philiproessler.net) (College of William and Mary), Yannick Pengl (ETH Zurich), and [Valeria Rueda](https://www.valeriarueda.org/) (University of Nottingham)*
+*[Philip Roessler](https://philiproessler.net) (College of William and Mary) with Yannick Pengl, and Valeria Rueda*
 
 Cash Crops, Print Technologies and the Politicization of Ethnicity in Africa
 
