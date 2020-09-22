@@ -7,7 +7,7 @@
 
 *Tim Glawion and Anne-Clémence Le Noan*
 
-The genius inefficacy of rebel governance: a case study of Ndélé in the Central African Republic
+The Genius Inefficacy of Rebel Governance: a case study of Ndélé in the Central African Republic
 
 ------
 
@@ -15,7 +15,7 @@ The genius inefficacy of rebel governance: a case study of Ndélé in the Centra
 
 *Leslie Wehner*
 
-Personality traits of populist leaders: Trump and Hugo Chavez
+Personality Traits of Populist Leaders: Trump and Hugo Chavez
 
 ------
 
@@ -47,7 +47,7 @@ TBA
 
 *Fotini Christia*
 
-TBA
+A Tale of Twitter and Telegram: Social Media Conflict Narratives from North Syria
 
 ------
 
