@@ -34,7 +34,13 @@ Out of Sight, Out of Mind? Electoral Responses to Proximity of Healthcare
 Cash Crops, Print Technologies and the Politicization of Ethnicity in Africa
 
 ------
+### 4-Nov-2020 (12:00 CET)
 
+*[Ilmari Kaihko](https://www.fhs.se/sc/profile-page.html?identity=400.1870c27f163cb98ebe4178f5) (Swedish Defence University)*
+
+The Evolved Concept of Hybrid War and its Implications for Strategy and the Military Profession
+
+------
 ### 11-Nov-2020 (16:00 CET)
 
 *[Reyko Huang](http://www.reykohuang.com/) (Texas A&M University)*
@@ -66,5 +72,9 @@ From Hezbollah to Hamas, to the Houthis: The Diffusion of the ‘Resistance’ M
 Does Exposure to Online Partisan Media Affect Political Attitudes and Behavior?
 
 
+### 16-Dec-2020 (12:00 CET)
 
+*[Klaus Schlichte](https://www.iniis.uni-bremen.de/personen/klaus-schlichte)*
+
+Food Policy as Social Policy in Sub-Saharan Africa
 
