@@ -61,7 +61,7 @@ From Hezbollah to Hamas, to the Houthis: The Diffusion of the ‘Resistance’ M
 
 ### 9-Dec-2020 (16:00 CET)
 
-*[Pablo Barbera](http://pablobarbera.com/)(University of Southern California; London School of Economics; Facebook)*
+*[Pablo Barbera](http://pablobarbera.com/) (University of Southern California)*
 
 Does Exposure to Online Partisan Media Affect Political Attitudes and Behavior?
 
