@@ -45,7 +45,7 @@ The Evolved Concept of Hybrid War and its Implications for Strategy and the Mili
 
 *[Reyko Huang](http://www.reykohuang.com/) (Texas A&M University)*
 
-TBA
+Friends in the Profession: Rebel Leaders, International Social Networks, and External Support for Rebellion
 
 ------
 
