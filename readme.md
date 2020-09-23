@@ -75,7 +75,7 @@ Does Exposure to Online Partisan Media Affect Political Attitudes and Behavior?
 
 ### 16-Dec-2020 (12:00 CET)
 
-*[Klaus Schlichte](https://www.iniis.uni-bremen.de/personen/klaus-schlichte)*
+*[Klaus Schlichte](https://www.iniis.uni-bremen.de/personen/klaus-schlichte) (Universität Bremen)*
 
 Food Policy as Social Policy in Sub-Saharan Africa
 
