@@ -49,7 +49,7 @@ Friends in the Profession: Rebel Leaders, International Social Networks, and Ext
 
 ------
 
-### 25-Nov-2020 (16:00 CET)
+### 25-Nov-2020 (12:00 CET)
 
 *[Fotini Christia](http://fotini.mit.edu/) (Massachusetts Institute of Technology)*
 
