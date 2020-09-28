@@ -52,7 +52,7 @@ Friends in the Profession: Rebel Leaders, International Social Networks, and Ext
 
 *[Josette Daemen](https://www.universiteitleiden.nl/en/staffmembers/josette-daemen#tab-2) (Leiden University)*
 
-Friends in the Profession: Rebel Leaders, International Social Networks, and External Support for Rebellion
+Security and Freedom
 
 ------
 
