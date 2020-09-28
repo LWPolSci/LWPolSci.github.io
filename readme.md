@@ -48,6 +48,13 @@ The Evolved Concept of Hybrid War and its Implications for Strategy and the Mili
 Friends in the Profession: Rebel Leaders, International Social Networks, and External Support for Rebellion
 
 ------
+### 18-Nov-2020 (12:00 CET)
+
+*[Josette Daemen](https://www.universiteitleiden.nl/en/staffmembers/josette-daemen#tab-2) (Leiden University)*
+
+Friends in the Profession: Rebel Leaders, International Social Networks, and External Support for Rebellion
+
+------
 
 ### 25-Nov-2020 (12:00 CET)
 
