@@ -7,7 +7,7 @@
 
 *[Tim Glawion](https://www.giga-hamburg.de/en/team/glawion) (GiGA) and [Anne-Clémence Le Noan](https://www.hertie-school.org/en/research/faculty-and-researchers/profile/person/le-noan) (Hertie School of Berlin)*
 
-The Genius Inefficacy of Rebel Governance: a case study of Ndélé in the Central African Republic
+[The Genius Inefficacy of Rebel Governance: a case study of Ndélé in the Central African Republic](https://www.dropbox.com/s/vb57q8e5mvyuu04/200927%20GlawionLeNoanAcko_RebelGovernanceNdele_draft.pdf?dl=0)
 
 ------
 
