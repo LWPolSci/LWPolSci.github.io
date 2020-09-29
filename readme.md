@@ -34,6 +34,15 @@ Out of Sight, Out of Mind? Electoral Responses to Proximity of Healthcare
 Cash Crops, Print Technologies and the Politicization of Ethnicity in Africa
 
 ------
+
+### 28-Oct-2020 (16:00 CET)
+
+*[Juan Masullo J.](https://www.juanmasullo.com) (Leiden University)*
+
+The Human Costs of the War on Drugs Attitudes towards Militarization of Security in Mexico
+
+------
+
 ### 4-Nov-2020 (12:00 CET)
 
 *[Ilmari Kaihko](https://www.fhs.se/sc/profile-page.html?identity=400.1870c27f163cb98ebe4178f5) (Swedish Defence University)*
