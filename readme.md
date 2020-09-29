@@ -15,7 +15,7 @@
 
 *[Leslie Wehner](https://researchportal.bath.ac.uk/en/persons/leslie-wehner) (University of Bath)*
 
-[Personality Traits of Populist Leaders: Trump and Hugo Chavez](https://www.dropbox.com/s/wzukpg3l249fcse/Paper-LTA_TRUMPCHAVEZ_WehnerThiers.pdf?dl=0)
+[Personality Traits of Populist Leaders: Donald Trump and Hugo Chavez](https://www.dropbox.com/s/wzukpg3l249fcse/Paper-LTA_TRUMPCHAVEZ_WehnerThiers.pdf?dl=0)
 
 ------
 
