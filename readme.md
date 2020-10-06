@@ -23,7 +23,7 @@
 
 *[Asli Cansur](https://www.aslicansunar.com/) (University of Oxford)*
 
-Out of Sight, Out of Mind? Electoral Responses to Proximity of Healthcare
+[Out of Sight, Out of Mind? Electoral Responses to Proximity of Healthcare](https://www.dropbox.com/s/xax4pa5ot1k11s0/acc_WP.pdf?dl=0)
 
 ------
 
