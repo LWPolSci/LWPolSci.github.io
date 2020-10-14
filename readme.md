@@ -31,7 +31,7 @@
 
 *[Philip Roessler](https://philiproessler.net) (College of William and Mary) with Yannick Pengl, and Valeria Rueda*
 
-Cash Crops, Print Technologies and the Politicization of Ethnicity in Africa
+[Cash Crops, Print Technologies and the Politicization of Ethnicity in Africa](https://www.dropbox.com/s/2sghfowu0abgozk/PRR2020_Ethnicity_WP.pdf?dl=0)
 
 ------
 
