@@ -39,7 +39,7 @@
 
 *[Juan Masullo J.](https://www.juanmasullo.com) (Leiden University)*
 
-The Human Costs of the War on Drugs Attitudes towards Militarization of Security in Mexico
+[The Human Costs of the War on Drugs Attitudes towards Militarization of Security in Mexico](https://www.dropbox.com/s/ihnch2k9wsijikz/Masullo%26Morisi_HumanCosts_LeidenUniv.pdf?dl=0)
 
 ------
 
