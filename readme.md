@@ -47,7 +47,7 @@
 
 *[Ilmari Kaihko](https://www.fhs.se/sc/profile-page.html?identity=400.1870c27f163cb98ebe4178f5) (Swedish Defence University)*
 
-The Evolved Concept of Hybrid War and its Implications for Strategy and the Military Profession
+[The Evolved Concept of Hybrid War and its Implications for Strategy and the Military Profession](https://www.dropbox.com/s/q9mr69etduvqn8l/K%C3%A4ihk%C3%B6%20-%20The%20Evolved%20Concept%20of%20Hybrid%20War%20and%20its%20Implications%20for%20Strategy%20and%20the%20Military%20Profession.pdf?dl=0)
 
 ------
 ### 11-Nov-2020 (16:00 CET)
