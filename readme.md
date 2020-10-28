@@ -61,7 +61,7 @@ Friends in the Profession: Rebel Leaders, International Social Networks, and Ext
 
 *[Josette Daemen](https://www.universiteitleiden.nl/en/staffmembers/josette-daemen#tab-2) (Leiden University)*
 
-Security and Freedom
+Why freedom requires security, and how to deal with risky freedoms?
 
 ------
 
