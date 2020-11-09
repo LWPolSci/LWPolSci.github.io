@@ -54,7 +54,7 @@
 
 *[Reyko Huang](http://www.reykohuang.com/) (Texas A&M University)*
 
-Friends in the Profession: Rebel Leaders, International Social Networks, and External Support for Rebellion
+[Friends in the Profession: Rebel Leaders, International Social Networks, and External Support for Rebellion](https://www.dropbox.com/s/uhr3h2eas3dh2es/Huang%20-%20ROLE%20int%27l%20experiences%20Leiden%20paper.pdf?dl=0)
 
 ------
 ### 18-Nov-2020 (12:00 CET)
