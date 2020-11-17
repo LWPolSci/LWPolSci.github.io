@@ -61,7 +61,7 @@
 
 *[Josette Daemen](https://www.universiteitleiden.nl/en/staffmembers/josette-daemen#tab-2) (Leiden University)*
 
-Why freedom requires security, and how to deal with risky freedoms?
+[The Many Faces of Security, Freedom, and the Relationship between the Two.](https://www.dropbox.com/s/64x92jeyytyqptm/Leiden%20Political%20Science%20Seminar%20presentation%20Josette%20Daemen.pptx?dl=0)
 
 ------
 
