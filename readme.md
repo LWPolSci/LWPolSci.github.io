@@ -69,7 +69,7 @@
 
 *[Fotini Christia](http://fotini.mit.edu/) (Massachusetts Institute of Technology)*
 
-A Tale of Twitter and Telegram: Social Media Conflict Narratives from North Syria
+[A Tale of Twitter and Telegram: Social Media Conflict Narratives from North Syria](https://www.dropbox.com/s/qz04jatg0lgxhod/Syria_Narratives_First_Draft.pdf?dl=0)
 
 ------
 
