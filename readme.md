@@ -77,7 +77,7 @@
 
 *[Daniel Sobelman](https://www.linkedin.com/in/daniel-sobelman-24283411/?originalSubdomain=il) (The Hebrew University of Jerusalem)*
 
-From Hezbollah to Hamas, to the Houthis: The Diffusion of the ‘Resistance’ Model
+[From Hezbollah to Hamas, to the Houthis: The Diffusion of the ‘Resistance’ Model](https://www.dropbox.com/s/5zxm2lbrt7s0peg/Sobelman_Israel_Hamas_Nov_2020.pdf?dl=0)
 
 ------
 
