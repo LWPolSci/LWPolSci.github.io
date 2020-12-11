@@ -93,5 +93,5 @@
 
 *[Klaus Schlichte](https://www.iniis.uni-bremen.de/personen/klaus-schlichte) (Universität Bremen)*
 
-Food Policy as Social Policy in Sub-Saharan Africa
+Food Policy as Social Policy in Sub-Saharan Africa [Background information](https://www.dropbox.com/s/h9nbu78b7rtazn7/OuedraogoSchlichte2020FoodPolicySenegalUganda.pdf?dl=0)
 
