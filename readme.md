@@ -29,7 +29,7 @@
 [Mission-Driven Bureaucrats]()
 
 ### 2-April-2021 (12:00 CET)
-*[Reinoud Leenders]https://www.kcl.ac.uk/people/dr-reinoud-leenders-1) (King’s College London)*
+*[Reinoud Leenders](https://www.kcl.ac.uk/people/dr-reinoud-leenders-1) (King’s College London)*
 
 [Based on "Foreign sponsorship of pro-government militias fighting Syria’s insurgency: Whither proxy wars"]()
 
