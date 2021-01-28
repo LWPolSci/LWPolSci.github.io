@@ -1,6 +1,12 @@
  
 # Welcome to Leiden Workshop in Political Science 
 
+## Winter & Spring 2021
+
+### 5-Feb-2021 (12:00 CET)
+*[Devrim Badamchi](https://leidenuni.academia.edu/devrimkabasakalbadamchi)*
+[Academic Freedom: Reflections on Theory and Experience]()
+
 ## Fall 2020
 
 ### 30-Sep-2020 (12:00 CET)
