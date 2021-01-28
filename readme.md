@@ -7,6 +7,42 @@
 *[Devrim Badamchi](https://leidenuni.academia.edu/devrimkabasakalbadamchi)*
 [Academic Freedom: Reflections on Theory and Experience]()
 
+### 12-Feb-2021 (16:00 CET)
+*[Lenka Bustikova](http://bustikova.faculty.asu.edu)*
+[Conventional and Unconventional Politics: Attitudes towards Far-Right Parties and Far-Right Armed Voluntary Militias in Ukraine]()
+
+### 26-Feb-2021 (12:00 CET)
+*[Vasilis Karakasis](https://www.universiteitleiden.nl/en/staffmembers/vasileios-karakasis#tab-1)*
+[Conventional and Unconventional Politics: Attitudes towards Far-Right Parties and Far-Right Armed Voluntary Militias in Ukraine]()
+
+### 5-March-2021 (12:00 CET)
+*[Danie Stockmann](http://daniestockmann.net/)*
+[Digital China: Managing Citizen Participation under Political Change]()
+
+### 26-March-2021 (12:00 CET)
+*[Dan Honig](https://danhonig.info/)*
+[Mission-Driven Bureaucrats]()
+
+### 2-April-2021 (12:00 CET)
+*[Reinoud Leenders](https://danhonig.info/)*
+[Based on "Foreign sponsorship of pro-government militias fighting Syria’s insurgency: Whither proxy wars"]()
+
+### 9-April-2021 (12:00 CET)
+*[Elina Zorina](https://www.universiteitleiden.nl/en/staffmembers/elina-zorina#tab-1)*
+[Parliamentary cooperation consequences for democratic legitimacy and vote choice]()
+
+*[Rick van Well](https://www.universiteitleiden.nl/en/staffmembers/rick-van-well#tab-1)*
+[Explaining government-opposition relations in parliament]()
+
+### 16-April-2021 (16:00 CET)
+*[Wendy Pearlman](https://polisci.northwestern.edu/people/core-faculty/wendy-pearlman.html)*
+[From Category to Meaning-Making: Toward A Political Theory of Narrative Identity]()
+
+
+### 30-April-2021 (16:00 CET)
+*[Melani Cammett](http://www.melanicammett.org/)*
+[Persecuted Minorities and Prosocial Behavior: Accountability and Public Goods Provision Among Hindus and Muslims in Delhi Slums (with Poulomi Chakrabarti and David Romney)]()
+
 ## Fall 2020
 
 ### 30-Sep-2020 (12:00 CET)
