@@ -19,12 +19,12 @@
 [Conventional and Unconventional Politics: Attitudes towards Far-Right Parties and Far-Right Armed Voluntary Militias in Ukraine]()
 
 ### 5-March-2021 (12:00 CET)
-*[Danie Stockmann](http://daniestockmann.net/) (Hertie School)*
+*[Danie Stockmann](http://daniestockmann.net/) (Hertie School; leiden University)*
 
 [Digital China: Managing Citizen Participation under Political Change]()
 
 ### 26-March-2021 (12:00 CET)
-*[Dan Honig](https://danhonig.info/) (Johns Hopkins SAIS)*
+*[Dan Honig](https://danhonig.info/) (Johns Hopkins SAIS; leiden University)*
 
 [Mission-Driven Bureaucrats]()
 
