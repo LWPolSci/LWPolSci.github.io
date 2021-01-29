@@ -6,7 +6,7 @@
 ### 5-Feb-2021 (12:00 CET)
 *[Devrim Badamchi](https://leidenuni.academia.edu/devrimkabasakalbadamchi) (Leiden University)*
 
-[Academic Freedom: Reflections on Theory and Experience]()
+[Academic Freedom: Reflections on Theory and Experience](https://www.dropbox.com/s/av2konu85n5lfql/Dimensions%20of%20Free%20Speech%20Chapter%204%20Devrim%20K.%20Badamchi.pdf?dl=0)
 
 ### 12-Feb-2021 (16:00 CET)
 *[Lenka Bustikova](http://bustikova.faculty.asu.edu) (Arizona State University)*
