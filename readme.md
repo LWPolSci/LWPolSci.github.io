@@ -16,7 +16,7 @@
 ### 26-Feb-2021 (12:00 CET)
 *[Vasilis Karakasis](https://www.universiteitleiden.nl/en/staffmembers/vasileios-karakasis#tab-1) (Leiden University)*
 
-[Conventional and Unconventional Politics: Attitudes towards Far-Right Parties and Far-Right Armed Voluntary Militias in Ukraine]()
+[Adding Fuel to the Conflict: How gas reserves complicate the Cyprus question]()
 
 ### 5-March-2021 (12:00 CET)
 *[Danie Stockmann](http://daniestockmann.net/) (Hertie School; Leiden University)*
