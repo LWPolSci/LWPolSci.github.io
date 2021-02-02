@@ -53,7 +53,18 @@
 
 [Persecuted Minorities and Prosocial Behavior: Accountability and Public Goods Provision Among Hindus and Muslims in Delhi Slums (with Poulomi Chakrabarti and David Romney)]()
 
-========================================================================================================================================================================================
+### 7-May-2021 (16:00 CET)
+*[Barbara Walter](https://barbarafwaltercom.wordpress.com/) (University of California, San Diego)*
+
+[TBA]()
+
+### 7-May-2021 (16:00 CET)
+*[Kira Huju](https://www.linkedin.com/in/kira-huju-73795955/?originalSubdomain=uk) (University of Oxford)*
+
+[The cosmopolitan standard of civilization: a critical sociology of elite belonging inside the Indian Foreign Service]()
+
+
+========================================================================================================================================================================
 ## Fall 2020 (Archived)
 
 ### 30-Sep-2020 (12:00 CET)
