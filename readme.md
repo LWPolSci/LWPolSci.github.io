@@ -24,7 +24,7 @@
 [Digital China: Managing Citizen Participation under Political Change]()
 
 ### 19-March-2021 (12:00 CET)
-*[Shubha Kamala Prasad](shubhakamalaprasad.com) (European University Institute)*
+*[Shubha Kamala Prasad](http://shubhakamalaprasad.com) (European University Institute)*
 
 [TBA]()
 
