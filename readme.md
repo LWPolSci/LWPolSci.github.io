@@ -23,6 +23,11 @@
 
 [Digital China: Managing Citizen Participation under Political Change]()
 
+### 19-March-2021 (12:00 CET)
+*[Shubha Kamala Prasad](shubhakamalaprasad.com) (European University Institute)*
+
+[TBA]()
+
 ### 26-March-2021 (12:00 CET)
 *[Dan Honig](https://danhonig.info/) (Johns Hopkins SAIS; Leiden University)*
 
