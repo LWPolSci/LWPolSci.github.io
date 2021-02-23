@@ -33,7 +33,8 @@
 
 [Mission-Driven Bureaucrats]()
 
-### 1-April-2021 (12:00 CET)
+### Thursday 1-April-2021 (12:00 CET)
+** April 2 is a public holiday (Good Friday) in the Netherlands, so this talk moved to Thursday. **
 *[Reinoud Leenders](https://www.kcl.ac.uk/people/dr-reinoud-leenders-1) (King’s College London)*
 
 [Based on "Foreign sponsorship of pro-government militias fighting Syria’s insurgency: Whither proxy wars"]()
