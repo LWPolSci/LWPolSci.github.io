@@ -56,7 +56,7 @@
 ### 23-April-2021 (16:00 CET)
 *[Aleksandra Khokhlova](https://www.universiteitleiden.nl/en/staffmembers/aleksandra-khokhlova#tab-1) (Leiden University)*
 
-[TBA]()
+[Issue Responsiveness in the European Parliament: The Causal Effect of Institutional Change on Behaviour of MEPs]()
 
 ### 30-April-2021 (16:00 CET)
 *[Melani Cammett](http://www.melanicammett.org/) (Harvard University)*
