@@ -16,7 +16,7 @@
 ### 26-Feb-2021 (12:00 CET)
 *[Vasilis Karakasis](https://www.universiteitleiden.nl/en/staffmembers/vasileios-karakasis#tab-1) (Leiden University)*
 
-[Adding Fuel to the Conflict: How gas reserves complicate the Cyprus question]()
+[Adding Fuel to the Conflict: How gas reserves complicate the Cyprus question](https://www.dropbox.com/s/eqgv6m6h3915gad/Working%20paper%20of%20Vasileios%20P.%20Karakasis%20%281%29.pdf?dl=0)
 
 ### 5-March-2021 (12:00 CET)
 *[Danie Stockmann](http://daniestockmann.net/) (Hertie School; Leiden University)*
