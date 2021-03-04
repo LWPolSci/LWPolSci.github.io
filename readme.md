@@ -11,7 +11,7 @@
 ### 12-Feb-2021 (16:00 CET)
 *[Lenka Bustikova](http://bustikova.faculty.asu.edu) (Arizona State University)*
 
-[Conventional and Unconventional Politics: Attitudes towards Far-Right Parties and Far-Right Armed Voluntary Militias in Ukraine]()
+[Conventional and Unconventional Politics: Attitudes towards Far-Right Parties and Far-Right Armed Voluntary Militias in Ukraine](https://www.dropbox.com/s/tjzs4bh7se77osd/lenka-ukraine-uncivil-farRight%20%281%29.pdf?dl=0)
 
 ### 26-Feb-2021 (12:00 CET)
 *[Vasilis Karakasis](https://www.universiteitleiden.nl/en/staffmembers/vasileios-karakasis#tab-1) (Leiden University)*
