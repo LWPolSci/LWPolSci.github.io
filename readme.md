@@ -60,7 +60,7 @@
 
 [Issue Responsiveness in the European Parliament: The Causal Effect of Institutional Change on Behaviour of MEPs]()
 
-### 30-April-2021 (16:00 CET)
+### 29-April-2021 (16:00 CET) ** Thursday **
 *[Melani Cammett](http://www.melanicammett.org/) (Harvard University)*
 
 [Persecuted Minorities and Prosocial Behavior: Accountability and Public Goods Provision Among Hindus and Muslims in Delhi Slums (with Poulomi Chakrabarti and David Romney)]()
