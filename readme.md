@@ -40,6 +40,7 @@
 *[Reinoud Leenders](https://www.kcl.ac.uk/people/dr-reinoud-leenders-1) (King’s College London)*
 
 [Based on "Foreign sponsorship of pro-government militias fighting Syria’s insurgency: Whither proxy wars"](https://www.dropbox.com/s/apppqxqf8qw7utu/Giustozzi%20and%20Leenders%202020%20Proxy%20war%20Syria%20etc.%2011_24_2020_Foreign%20sp.pdf?dl=0)
+
 [Appendix](https://www.dropbox.com/s/zjknffn1ywnn5hm/Leenders%20and%20Giustozzi%20supplementary%20material%20fmed_a_1839235_sm5353.pdf?dl=0)
 
 ### 9-April-2021 (12:00 CET)
