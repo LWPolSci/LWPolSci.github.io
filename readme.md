@@ -78,7 +78,7 @@
 [Mimetic hedging: how Hezbollah resists against the world]()
 
 ### 21-May-2021 (12:00 CET)
-*[Kira Huju](https://www.linkedin.com/in/kira-huju-73795955/?originalSubdomain=uk) (University of Oxford)*
+*[Kira Huju](https://www.southasia.ox.ac.uk/people/dr-kira-huju#/) (University of Oxford)*
 
 [The cosmopolitan standard of civilization: a critical sociology of elite belonging inside the Indian Foreign Service]()
 
