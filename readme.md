@@ -72,15 +72,16 @@
 
 [Propaganda and Radicalization in an Internet Age](https://www.dropbox.com/s/lhgqfvh7w7fnyi5/MPW_Radicalization_TM_%20To%20Share.pdf?dl=0)
 
-### 14-May-2021 (12:00 CET)
-*[Marina Calculli](https://www.universiteitleiden.nl/en/staffmembers/marina-calculli#tab-1) (Leiden University)*
-
-[Mimetic hedging: how Hezbollah resists against the world]()
-
 ### 21-May-2021 (12:00 CET)
 *[Kira Huju](https://www.southasia.ox.ac.uk/people/dr-kira-huju#/) (University of Oxford)*
 
 [The cosmopolitan standard of civilization: a critical sociology of elite belonging inside the Indian Foreign Service]()
+
+
+### 28-May-2021 (12:00 CET)
+*[Marina Calculli](https://www.universiteitleiden.nl/en/staffmembers/marina-calculli#tab-1) (Leiden University)*
+
+[Mimetic hedging: how Hezbollah resists against the world]()
 
 
 =================================================================================================================================================================
