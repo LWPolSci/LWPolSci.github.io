@@ -28,12 +28,12 @@
 ### 2-Dec-2021 (12:00 CET)
 *[Babak RezaeeDaryakenari](http://www.babakrezaee.com/) (Leiden University)*
 *[Yasemin Akbaba](https://www.gettysburg.edu/academic-programs/political-science/faculty/employee_detail.dot?empId=03629972520013384&pageTitle=Yasemin+Akbaba) (Gettysburg College)*
-*[zgur Ozdamar](http://ozgur.bilkent.edu.tr/) (Bilkent University)*
+*[Ozgur Ozdamar](http://ozgur.bilkent.edu.tr/) (Bilkent University)*
 
 [Roles in Action: Iran and Saudi Arabia’s Faith-based Role Conflict in the Middle East]()
 
 ### 9-Dec-2021 (12:00 CET)
-*[Loes Aaldering](http://www.babakrezaee.com/) (Vrije Universiteit Amsterdam)*
+*[Loes Aaldering](https://research.vu.nl/en/persons/loes-aaldering) (Vrije Universiteit Amsterdam)*
 
 [Gender and Politics: Responding to Sexist Campaign Attacks]()
 
