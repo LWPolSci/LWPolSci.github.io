@@ -9,10 +9,16 @@
 [Local government participation between anti-elitism and localism]()
 
 
-### 21-Oct-2021 (12:00 CET)
+### 28-Oct-2021 (12:00 CET)
 *[Tom Louwrse](https://www.tomlouwerse.nl/) (Leiden University) and [Wouter Schakel](https://www.uva.nl/profiel/s/c/w.schakel/w.schakel.html?cb) (University of Amsterdam)*
 
 [Unequal Responsiveness in MP-Citizen Communication: A Comparative Field Experiment]()
+
+
+### 11-Nov-2021 (12:00 CET)
+*[Daphne van der Pas](https://www.uva.nl/en/profile/p/a/d.j.vanderpas/d.j.vanderpas.html) (University of Amsterdam)*
+
+[TBA]()
 
 
 
