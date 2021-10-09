@@ -1,6 +1,22 @@
  
 # Welcome to Leiden Workshop in Political Science 
 
+## Fall 2021
+
+### 21-Oct-2021 (12:00 CET)
+*[Simon Otjes](https://simonotjes.nl/en/home_en/) (Leiden University)*
+
+[Local government participation between anti-elitism and localism]()
+
+
+### 21-Oct-2021 (12:00 CET)
+*[Tom Louwrse](https://www.tomlouwerse.nl/) (Leiden University) and [Wouter Schakel](https://www.uva.nl/profiel/s/c/w.schakel/w.schakel.html?cb) (University of Amsterdam)*
+
+[Unequal Responsiveness in MP-Citizen Communication: A Comparative Field Experiment]()
+
+
+
+=======================================================================================
 ## Winter & Spring 2021
 
 ### 5-Feb-2021 (12:00 CET)
