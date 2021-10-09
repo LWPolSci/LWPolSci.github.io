@@ -20,7 +20,27 @@
 
 [TBA]()
 
+### 18-Nov-2021 (12:00 CET)
+*[Leila Demarest](https://www.universiteitleiden.nl/en/staffmembers/leila-demarest#tab-1) (Leiden University)*
 
+[Explaining the urban-rural divide: diversity and coethnic voting preferences among adolescents in Lagos state, Nigeria]()
+
+### 2-Dec-2021 (12:00 CET)
+*[Babak RezaeeDaryakenari](http://www.babakrezaee.com/) (Leiden University)*
+*[Yasemin Akbaba](https://www.gettysburg.edu/academic-programs/political-science/faculty/employee_detail.dot?empId=03629972520013384&pageTitle=Yasemin+Akbaba) (Gettysburg College)*
+*[zgur Ozdamar](http://ozgur.bilkent.edu.tr/) (Bilkent University)*
+
+[Roles in Action: Iran and Saudi Arabia’s Faith-based Role Conflict in the Middle East]()
+
+### 9-Dec-2021 (12:00 CET)
+*[Loes Aaldering](http://www.babakrezaee.com/) (Vrije Universiteit Amsterdam)*
+
+[Gender and Politics: Responding to Sexist Campaign Attacks]()
+
+### 16-Dec-2021 (12:00 CET)
+*[Graig Klein](http://www.babakrezaee.com/) (Leiden University)*
+
+[TBA]()
 
 =======================================================================================
 ## Winter & Spring 2021
