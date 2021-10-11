@@ -10,7 +10,7 @@
 
 
 ### 28-Oct-2021 (12:00 CET)
-*[Tom Louwrse](https://www.tomlouwerse.nl/) (Leiden University) and [Wouter Schakel](https://www.uva.nl/profiel/s/c/w.schakel/w.schakel.html?cb) (University of Amsterdam)*
+*[Tom Louwerse](https://www.tomlouwerse.nl/) (Leiden University) and [Wouter Schakel](https://www.uva.nl/profiel/s/c/w.schakel/w.schakel.html?cb) (University of Amsterdam)*
 
 [Unequal Responsiveness in MP-Citizen Communication: A Comparative Field Experiment]()
 
@@ -38,7 +38,7 @@
 [Gender and Politics: Responding to Sexist Campaign Attacks]()
 
 ### 16-Dec-2021 (12:00 CET)
-*[Graig Klein](http://www.babakrezaee.com/) (Leiden University)*
+*[Graig Klein](http://www.graigklein.com/) (Leiden University)*
 
 [TBA]()
 
