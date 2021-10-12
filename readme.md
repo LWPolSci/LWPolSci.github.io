@@ -18,7 +18,7 @@
 ### 11-Nov-2021 (12:00 CET)
 *[Daphne van der Pas](https://www.uva.nl/en/profile/p/a/d.j.vanderpas/d.j.vanderpas.html) (University of Amsterdam)*
 
-[TBA]()
+[Think Female Leader, Think…? Gender Stereotypes of Political Leaders]()
 
 ### 18-Nov-2021 (12:00 CET)
 *[Leila Demarest](https://www.universiteitleiden.nl/en/staffmembers/leila-demarest#tab-1) (Leiden University)*
@@ -40,7 +40,7 @@
 ### 16-Dec-2021 (12:00 CET)
 *[Graig Klein](http://www.graigklein.com/) (Leiden University)*
 
-[TBA]()
+[Protest Shocks and Armed Conflict: Moving from the Streets to the Battlefield]()
 
 =======================================================================================
 ## Winter & Spring 2021
