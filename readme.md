@@ -1,6 +1,46 @@
  
 # Welcome to Leiden Workshop in Political Science 
 
+## Winter & Spring 2021
+
+### 17-Feb-2022 (12:00 CET)
+*[Mariëlle Wijermars](https://www.maastrichtuniversity.nl/p70066306) (Maastricht University)*
+
+[How platforms mediate authoritarian practices]()
+
+
+### 24-Feb-2022 (12:00 CET)
+*[Andre Bank](https://www.giga-hamburg.de/en/the-giga/team/bank-andre) (German Institute for Global and Area Studies (GIGA))*
+
+[Title: TBA]()
+
+### 3-Mar-2022 (12:00 CET)
+*[Irene Menendez](https://www.ie.edu/school-global-public-affairs/faculty-and-research/faculty/irene-menendez-gonzalez/) (IE university)*
+
+[Title: TBA]()
+
+
+### 24-Mar-2022 (12:00 CET)
+*[Marianne Dahl](https://gps.prio.org/People/Person/?x=16) (Peace Research Institute Oslo (PRIO))*
+
+[Who defects? Unpacking security force defection during violent and non-violent campaigns]()
+
+
+### 31-Mar-2022 (12:00 CET)
+*[Younes Saramifar](https://www.younessaramifar.com/) (Vrije Universiteit Amsterdam)*
+
+[]()
+
+
+### 24-Mar-2022 (12:00 CET)
+*[Juan Masullo Jimenez](https://www.universiteitleiden.nl/en/staffmembers/juan-masullo-jimenez#tab-1) (Leiden University)*
+
+[]()
+
+
+
+========================================
+
 ## Fall 2021
 
 ### 21-Oct-2021 (12:00 CET)
