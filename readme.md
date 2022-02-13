@@ -12,12 +12,12 @@
 ### 24-Feb-2022 (12:00 CET)
 *[Andre Bank](https://www.giga-hamburg.de/en/the-giga/team/bank-andre) (German Institute for Global and Area Studies (GIGA))*
 
-[Title: TBA]()
+[]()
 
 ### 3-Mar-2022 (12:00 CET)
 *[Irene Menendez](https://www.ie.edu/school-global-public-affairs/faculty-and-research/faculty/irene-menendez-gonzalez/) (IE university)*
 
-[Title: TBA]()
+[]()
 
 
 ### 24-Mar-2022 (12:00 CET)
