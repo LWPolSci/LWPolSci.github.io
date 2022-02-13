@@ -1,7 +1,7 @@
  
 # Welcome to Leiden Workshop in Political Science 
 
-## Winter & Spring 2021
+## Winter & Spring 2022
 
 ### 17-Feb-2022 (12:00 CET)
 *[Mariëlle Wijermars](https://www.maastrichtuniversity.nl/p70066306) (Maastricht University)*
