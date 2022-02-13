@@ -32,11 +32,37 @@
 []()
 
 
-### 24-Mar-2022 (12:00 CET)
+### 7-Apr-2022 (12:00 CET)
 *[Juan Masullo Jimenez](https://www.universiteitleiden.nl/en/staffmembers/juan-masullo-jimenez#tab-1) (Leiden University)*
 
 []()
 
+
+### 14-Apr-2022 (12:00 CET)
+*[Muhammet A. Bas](https://www.muhammetbas.com/) (New York University Abu Dhabi)*
+
+[]()
+
+### 21-Apr-2022 (12:00 CET)
+*[Hilde van Meegdenburg](https://www.universiteitleiden.nl/en/staffmembers/hilde-van-meegdenburg#tab-1) (Leiden University)*
+
+[]()
+
+### 28-Apr-2022 (12:00 CET)
+*[Henning Tamm](https://henningtamm.com/) (University of St Andrews)*
+
+[]()
+
+
+### 12-May-2022 (12:00 CET)
+*[Erdem Aytaç](http://home.ku.edu.tr/~saytac/) (Koç University)*
+
+[]()
+
+### 19-May-2022 (12:00 CET)
+*[Erdem Aytaç](https://www.universiteitleiden.nl/en/staffmembers/jonathan-phillips#tab-1) (Leiden University)*
+
+[Outsiders Against the Party Machine: Programmatic Reform in Subnational Democracies]()
 
 
 ========================================
