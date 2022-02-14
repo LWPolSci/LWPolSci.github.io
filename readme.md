@@ -60,7 +60,7 @@
 []()
 
 ### 19-May-2022 (12:00 CET)
-*[Erdem Aytaç](https://www.universiteitleiden.nl/en/staffmembers/jonathan-phillips#tab-1) (Leiden University)*
+*[Jonathan Phillips](https://www.universiteitleiden.nl/en/staffmembers/jonathan-phillips#tab-1) (Leiden University)*
 
 [Outsiders Against the Party Machine: Programmatic Reform in Subnational Democracies]()
 
