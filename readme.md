@@ -15,7 +15,7 @@
 []()
 
 ### 3-Mar-2022 (12:00 CET)
-*[Irene Menendez](https://www.ie.edu/school-global-public-affairs/faculty-and-research/faculty/irene-menendez-gonzalez/) (IE university)*
+*[Irene Menendez](https://www.ie.edu/school-global-public-affairs/faculty-and-research/faculty/irene-menendez-gonzalez/) (IE University)*
 
 []()
 
