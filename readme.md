@@ -33,9 +33,9 @@
 
 
 ### 7-Apr-2022 (12:00 CET)
-*[Juan Masullo Jimenez](https://www.universiteitleiden.nl/en/staffmembers/juan-masullo-jimenez#tab-1) (Leiden University)*
+*[Petr Kopecký (Leiden University), Jan-Hinrik Meyer-Sahling (University of Nottingham) & Maria Spirova(Leiden University)]()*
 
-[]()
+[(Extreme) Political Polarization and Party Patronage]()
 
 
 ### 14-Apr-2022 (12:00 CET)
@@ -63,6 +63,11 @@
 *[Jonathan Phillips](https://www.universiteitleiden.nl/en/staffmembers/jonathan-phillips#tab-1) (Leiden University)*
 
 [Outsiders Against the Party Machine: Programmatic Reform in Subnational Democracies]()
+
+### 27-May-2022 (12:00 CET)
+*[Juan Masullo Jimenez](https://www.universiteitleiden.nl/en/staffmembers/juan-masullo-jimenez#tab-1) (Leiden University)*
+
+[]()
 
 
 ========================================
