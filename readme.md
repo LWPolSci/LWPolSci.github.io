@@ -29,7 +29,7 @@
 ### 31-Mar-2022 (12:00 CET)
 *[Younes Saramifar](https://www.younessaramifar.com/) (Vrije Universiteit Amsterdam)*
 
-[]()
+[The Jewel of Men: Weaponry as Material Religion among Muslim Communities]()
 
 
 ### 7-Apr-2022 (12:00 CET)
