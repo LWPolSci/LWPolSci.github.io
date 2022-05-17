@@ -64,11 +64,15 @@
 
 [Outsiders Against the Party Machine: Programmatic Reform in Subnational Democracies]()
 
-### 27-May-2022 (12:00 CET)
+### 10-June-2022 (12:00 CET)
 *[Juan Masullo Jimenez](https://www.universiteitleiden.nl/en/staffmembers/juan-masullo-jimenez#tab-1) (Leiden University)*
 
 []()
 
+### 16-June-2022 (12:00 CET)
+*[Diana Davila Gordillo](https://dianadavilagordillo.com/) (Leiden University)*
+
+[]()
 
 ========================================
 
