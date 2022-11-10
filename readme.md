@@ -1,5 +1,5 @@
  
-# Welcome to Leiden Workshop in Political Science 
+# Welcome to the Leiden Workshop in Political Science 
 
 ## Fall 2022
 
