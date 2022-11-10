@@ -8,22 +8,22 @@ All meetings 12-1 p.m.
 ### 7 September
 *[Yiannos Katsourides](https://www.unic.ac.cy/katsourides-yiannos/) (University of Nicosia)*
 
-[A ‘new’ political elite in radical left parties? What consequences for intra-party politics? Evidence from Greece (SYRIZA) and Cyprus (AKEL)]
+[A ‘new’ political elite in radical left parties? What consequences for intra-party politics? Evidence from Greece (SYRIZA) and Cyprus (AKEL)]()
 
 ### 19 October
 *[Kathleen Brown](https://www.kathleenjbrown.com/) (Institute of Political Science, Leiden University)*
 
-[Why Hide? Africa’s Unreported Debt to China]
+[Why Hide? Africa’s Unreported Debt to China]()
 
 ### 26 October
 *[Rebecca Ploof](https://rebeccaploof.wordpress.com/) (Institute of Political Science, Leiden University)*
 
-[Can Rights be Enough? Depoliticization and the Climate Crisis]
+[Can Rights be Enough? Depoliticization and the Climate Crisis]()
 
 ###16 November, Leiden/FSW 5A29, 
 *[Katharina Natter](https://katharinanatter.com/) (Institute of Political Science, Leiden University)
 
-[TBC]
+[TBC]()
 
 
 =================================================================================================================================================================
