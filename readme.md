@@ -21,7 +21,7 @@ All meetings 12-1 p.m.
 [Can Rights be Enough? Depoliticization and the Climate Crisis]()
 
 ### 16 November, Leiden/FSW 5A29, 
-*[Katharina Natter](https://katharinanatter.com/) (Institute of Political Science, Leiden University)
+*[Katharina Natter](https://katharinanatter.com/) (Institute of Political Science, Leiden University)*
 
 [TBC]()
 
