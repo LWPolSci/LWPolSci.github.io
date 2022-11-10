@@ -1,7 +1,34 @@
  
 # Welcome to Leiden Workshop in Political Science 
 
-## Winter & Spring 2022
+## Fall 2022
+
+All meetings 12-1 p.m.
+
+### 7 September
+*[Yiannos Katsourides](https://www.unic.ac.cy/katsourides-yiannos/) (University of Nicosia)*
+
+[A ‘new’ political elite in radical left parties? What consequences for intra-party politics? Evidence from Greece (SYRIZA) and Cyprus (AKEL)]
+
+### 19 October
+*[Kathleen Brown](https://www.kathleenjbrown.com/) (Institute of Political Science, Leiden University)*
+
+[Why Hide? Africa’s Unreported Debt to China]
+
+### 26 October
+*[Rebecca Ploof](https://rebeccaploof.wordpress.com/) (Institute of Political Science, Leiden University)*
+
+[Can Rights be Enough? Depoliticization and the Climate Crisis]
+
+###16 November, Leiden/FSW 5A29, 
+*[Katharina Natter](https://katharinanatter.com/) (Institute of Political Science, Leiden University)
+
+[TBC]
+
+
+=================================================================================================================================================================
+
+## Winter & Spring 2022 (Archived)
 
 ### 17-Feb-2022 (12:00 CET)
 *[Mariëlle Wijermars](https://www.maastrichtuniversity.nl/p70066306) (Maastricht University)*
@@ -74,9 +101,9 @@
 
 []()
 
-========================================
+=================================================================================================================================================================
 
-## Fall 2021
+## Fall 2021 (Archived)
 
 ### 21-Oct-2021 (12:00 CET)
 *[Simon Otjes](https://simonotjes.nl/en/home_en/) (Leiden University)*
@@ -117,8 +144,8 @@
 
 [Protest Shocks and Armed Conflict: Moving from the Streets to the Battlefield]()
 
-=======================================================================================
-## Winter & Spring 2021
+=================================================================================================================================================================
+## Winter & Spring 2021 (Archived)
 
 ### 5-Feb-2021 (12:00 CET)
 *[Devrim Badamchi](https://leidenuni.academia.edu/devrimkabasakalbadamchi) (Leiden University)*
